@@ -1,0 +1,1 @@
+# AI-Vois-do-translator-w-T-umaczy-i-nauki-j-zyk-w-i-pisania-patent-w-i-esej
